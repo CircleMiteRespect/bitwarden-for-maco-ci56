@@ -1,4 +1,4 @@
-# 
+# best Bitwarden for macOS Helper | VPN-integration + system-optimization is the best Bitwarden for macOS helper, featuring VPN-integration and system-optimization. Secure,
 
 
 
